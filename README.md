@@ -1,1 +1,2 @@
-# majasedziak.github.io
+# majasedziak.github.io 
+# Maja Sędziak
